@@ -28,7 +28,9 @@
 
 #### Writing
 
-[heigeai.com](https://www.heigeai.com) · 公众号「黑哥 AI」· 小红书「黑哥 AI」
+[heigeai.com](https://www.heigeai.com)
+
+全网同名「问问黑哥」：公众号 · 视频号 · 抖音 · 小红书 · B 站
 
 ---
 
